@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **tusharsingh.official@icloud.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1jKJ3m0T0EdKjp5WUTW1IPYbFLhaWEr5fFQXOPRBwjIg/edit?usp=sharing](https://docs.google.com/document/d/1jKJ3m0T0EdKjp5WUTW1IPYbFLhaWEr5fFQXOPRBwjIg/edit?usp=sharing)
-
 - ⚡ Fun fact **I like Philosophy.**
 
 <h3 align="left">Connect with me:</h3>
